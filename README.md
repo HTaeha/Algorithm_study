@@ -1,1 +1,1 @@
-# Algorithm code °øÀ¯
+# Algorithm code 
